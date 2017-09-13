@@ -1,5 +1,2 @@
 "# buurmanmol" 
-"#Memes"
-"test"
-"martijn"
-"kechba"
+Buurman djamel is opzoek naar die chiemies
